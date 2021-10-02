@@ -11,3 +11,5 @@ This is what Ted and Alice did on Alice's computer
 
 * SO here is THE BEST joke....or whatever. We did it on Bob's computer this time, because, Bob.
 
+now Carol is out of sync with us
+
