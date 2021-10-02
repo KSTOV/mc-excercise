@@ -4,3 +4,5 @@ This is what Bob & Carol did on Carol's computer "and heres a joke or something"
 
 This is what Ted and Alice did on Alice's computer 
 "May this please the arbiters of good humor"
+
+* SO here is THE BEST joke....or whatever. We did it on Bob's computer this time, because, Bob.
