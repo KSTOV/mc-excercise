@@ -17,4 +17,9 @@ This is what Ted and Alice did on Alice's computer
 
 now Carol is out of sync with us
 
+
 Alice's turn to throw a wrench in things :smirk:
+
+now alice is out of sync with us
+
+
