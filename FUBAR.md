@@ -8,3 +8,6 @@ This is how Ted and Alice got lost in the sauce and found wonderland"BHS's for l
 This is what Ted and Alice did on Alice's computer 
 "May this please the arbiters of good humor"
 
+
+* SO here is THE BEST joke....or whatever. We did it on Bob's computer this time, because, Bob.
+
